@@ -1,5 +1,4 @@
-Chapter 11: Conclusion: Recap of Key Strategies for Leading with Relationships
-==============================================================================
+# Recap of Key Strategies for Leading with Relationships
 
 In this book, we have explored the art of relational leadership and its importance in achieving greater impact and success. We have discussed various strategies and techniques for building strong relationships, communicating effectively, and leading with empathy and authenticity. In this final chapter, we will recap the key strategies for leading with relationships.
 
