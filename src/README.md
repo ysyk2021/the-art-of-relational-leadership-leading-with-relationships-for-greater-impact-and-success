@@ -17,5 +17,4 @@ Whether you are a new or experienced leader, "The Art of Relational Leadership" 
 
 So, let's dive into "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success" and discover how to become a more effective and successful leader through the power of relationships.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
