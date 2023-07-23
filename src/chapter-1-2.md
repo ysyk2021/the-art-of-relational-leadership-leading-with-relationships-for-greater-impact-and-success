@@ -28,5 +28,3 @@ Conclusion
 ----------
 
 Misconceptions about leadership can be detrimental to achieving success. By recognizing that leadership is a skill that can be developed, that leaders must empower rather than control their teams, and that leadership is relevant at all levels of an organization, we can adopt a more inclusive and effective approach to leadership.
-
-In the following chapters, we'll explore the principles and practices of relational leadership and provide tips for leading with relationships effectively.
