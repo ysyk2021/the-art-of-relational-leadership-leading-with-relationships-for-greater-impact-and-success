@@ -1,5 +1,3 @@
-Chapter 4: Understanding the Power of Relational Leadership
-===========================================================
 
 Understanding the power of relational leadership is essential for achieving success in the workplace. In this chapter, we'll explore the benefits of focusing on relational leadership, recognizing how it contributes to success, analyzing its impact on individuals and organizations, and addressing limiting beliefs.
 

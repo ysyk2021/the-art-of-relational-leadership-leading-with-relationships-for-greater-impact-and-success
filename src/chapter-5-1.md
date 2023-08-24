@@ -1,5 +1,3 @@
-Identifying Opportunities for Leading with Relationships
-=================================================================================================================
 
 Relational leadership is a powerful approach to leadership that prioritizes building strong relationships with team members. In this chapter, we'll explore how leaders can identify opportunities for maximizing their relational leadership skills.
 

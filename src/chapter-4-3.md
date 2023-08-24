@@ -1,5 +1,3 @@
-Analyzing the Impact of Relational Leadership on Individuals and Organizations
-===========================================================================================================================================
 
 Relational leadership can have a powerful impact on individuals and organizations. In this chapter, we'll explore the ways in which relational leadership can positively impact individuals and organizations.
 

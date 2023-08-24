@@ -1,4 +1,3 @@
-# Identifying Common Sources of Resistance to Relational Leadership
 
 While relational leadership has numerous benefits, it may face resistance from various sources. In this chapter, we explore some common reasons why individuals and organizations resist adopting a relational leadership approach. By understanding these sources of resistance, leaders can develop strategies to overcome them and promote the acceptance and implementation of relational leadership principles.
 

@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-========================================================================================
 
 Developing your relational leadership skills is an ongoing process that requires a commitment to learning and growth. In this chapter, we'll explore how leaders can utilize feedback and coaching to develop their relational leadership skills.
 

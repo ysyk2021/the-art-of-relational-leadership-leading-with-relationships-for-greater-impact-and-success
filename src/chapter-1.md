@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Leadership is an essential component of success in the workplace. However, many leaders struggle to achieve their goals and objectives because they fail to prioritize building relationships with team members. In this chapter, we'll explore the importance of relational leadership, common misconceptions about leadership, and the benefits of leading with relationships.
 

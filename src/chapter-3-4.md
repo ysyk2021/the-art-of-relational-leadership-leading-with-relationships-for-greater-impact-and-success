@@ -1,4 +1,3 @@
-# Developing Empathy and Compassion Through Relational Leadership
 
 Empathy and compassion are essential qualities for effective relational leadership. This chapter explores the importance of developing empathy and compassion as a relational leader and provides practical strategies to cultivate these qualities.
 

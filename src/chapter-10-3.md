@@ -1,5 +1,3 @@
-Continuous Learning and Improvement
-===============================================================================================
 
 Effective leadership requires continuous learning and improvement. In this chapter, we'll explore how relational leaders can pursue ongoing learning opportunities and continuously improve their skills.
 

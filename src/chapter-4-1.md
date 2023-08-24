@@ -1,5 +1,3 @@
-The Benefits of Focusing on Relational Leadership
-==============================================================================================================
 
 Relational leadership is a powerful approach to leadership that prioritizes building strong relationships with team members. In this chapter, we'll explore the benefits of focusing on relational leadership.
 

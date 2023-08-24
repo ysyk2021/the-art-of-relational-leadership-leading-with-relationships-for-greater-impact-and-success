@@ -1,5 +1,3 @@
-Overview of Relational Leadership
-============================================================================
 
 Relational leadership is a leadership style that emphasizes building relationships and connections with team members to achieve success. In this chapter, we'll provide an overview of relational leadership and its key characteristics.
 

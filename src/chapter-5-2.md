@@ -1,5 +1,3 @@
-Finding Ways to Build Effective Relationships
-======================================================================================================
 
 Effective relationship-building is a key aspect of relational leadership. In this chapter, we'll explore strategies for finding ways to build effective relationships and maximize your relational leadership skills.
 

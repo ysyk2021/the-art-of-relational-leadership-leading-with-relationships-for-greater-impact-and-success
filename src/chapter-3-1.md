@@ -1,5 +1,3 @@
-Techniques for Cultivating a Relational Leadership Mindset
-=================================================================================================================
 
 Cultivating a relational leadership mindset is essential for leading with empathy and authenticity. In this chapter, we'll explore techniques for developing a relational leadership mindset.
 

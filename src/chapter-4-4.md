@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-========================================================================================
 
 Relational leadership is a powerful approach to leadership, but it can be hindered by limiting beliefs. In this chapter, we'll explore how leaders can address limiting beliefs and unlock the full potential of relational leadership.
 

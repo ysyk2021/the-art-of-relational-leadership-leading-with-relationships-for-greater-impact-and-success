@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Relational Leadership Skills
-=======================================================
 
 Maximizing your relational leadership skills is essential for achieving success in the workplace. In this chapter, we'll explore strategies for identifying opportunities for leading with relationships, finding ways to build effective relationships, communicating effectively, and fostering trust and respect.
 
@@ -51,5 +49,4 @@ Conclusion
 ----------
 
 Maximizing your relational leadership skills requires identifying opportunities for leading with relationships, building effective relationships, communicating effectively, and fostering trust and respect. By prioritizing these aspects of leadership, leaders can create a positive and supportive workplace culture that promotes engagement, motivation, and productivity among team members and drives greater impact and success.
-
 

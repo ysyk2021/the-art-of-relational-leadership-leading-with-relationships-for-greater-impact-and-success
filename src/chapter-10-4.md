@@ -1,4 +1,3 @@
-# Adapting to Changes in the Workplace
 
 In today's rapidly changing work environment, leaders must be adept at adapting to new challenges and embracing change. Relational leadership provides a framework for navigating these changes by prioritizing relationships and fostering resilience. In this chapter, we explore strategies for leaders to adapt to changes in the workplace while maintaining a focus on relational leadership principles.
 

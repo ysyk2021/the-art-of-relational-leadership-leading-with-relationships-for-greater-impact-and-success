@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-=====================================================================================================
 
 Developing a relational leadership mindset is essential for leading with empathy and authenticity. In this chapter, we'll explore how leaders can utilize positive self-talk and visualization to develop a relational leadership mindset.
 

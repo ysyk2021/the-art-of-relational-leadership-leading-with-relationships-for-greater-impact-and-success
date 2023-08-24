@@ -1,5 +1,3 @@
-Avoiding Information Overload
-=========================================================================================
 
 Leveraging technology is an essential aspect of achieving success in the modern workplace. In this chapter, we'll explore strategies for leveraging technology for relational leadership, including managing information overload and promoting effective communication.
 

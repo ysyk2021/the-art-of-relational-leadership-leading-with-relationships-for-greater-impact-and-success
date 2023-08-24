@@ -1,5 +1,3 @@
-Developing Strategies for Leading with Relationships
-=============================================================================================================
 
 Developing effective strategies for leading with relationships is a key aspect of relational leadership. In this chapter, we'll explore strategies for developing your relational leadership skills and leading with relationships.
 

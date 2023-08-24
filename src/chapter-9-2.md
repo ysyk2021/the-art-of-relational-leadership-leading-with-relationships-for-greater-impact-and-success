@@ -1,5 +1,3 @@
-Using Technology to Enhance Your Relational Leadership Experience
-=============================================================================================================================
 
 Technology can be a valuable tool for enhancing your relational leadership experience. In this chapter, we'll explore how leaders can identify relational leadership technologies and resources, use technology to enhance their leadership skills, foster accessibility and inclusivity, and avoid information overload.
 

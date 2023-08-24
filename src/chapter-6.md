@@ -1,5 +1,3 @@
-Chapter 6: Developing Your Relational Leadership Skills
-=======================================================
 
 Developing your relational leadership skills is essential for achieving success in the workplace. In this chapter, we'll explore strategies for understanding the principles of effective relational leadership, developing strategies for leading with relationships, utilizing feedback and coaching, and fostering continuous learning and improvement.
 

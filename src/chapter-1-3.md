@@ -1,4 +1,3 @@
-# Benefits of Leading with Relationships
 
 Leading with relationships is a powerful approach that brings numerous benefits to both leaders and organizations. This chapter explores the key benefits of leading with relationships and highlights how this leadership style can drive greater impact and success.
 

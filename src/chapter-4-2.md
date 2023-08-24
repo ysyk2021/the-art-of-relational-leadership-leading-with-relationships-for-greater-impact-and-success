@@ -1,4 +1,3 @@
-# Recognizing How Relational Leadership Contributes to Success
 
 Relational leadership is a powerful approach that can drive significant success and impact within organizations. In this chapter, we explore how relational leadership contributes to success and examine its various implications for individuals, teams, and the overall organization.
 

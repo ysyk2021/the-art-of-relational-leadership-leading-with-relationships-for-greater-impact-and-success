@@ -1,5 +1,3 @@
-Understanding the Science Behind Effective Leadership
-================================================================================================
 
 Relational leadership is a people-focused approach to leadership that emphasizes building strong relationships and connections with team members. In this chapter, we'll explore the science behind effective leadership and how it relates to relational leadership.
 

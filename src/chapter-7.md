@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Relational Leadership
-=======================================================
 
 Managing resistance to relational leadership is an essential aspect of achieving success in the workplace. In this chapter, we'll explore strategies for identifying common sources of resistance, developing strategies for overcoming resistance, addressing fear and uncertainty, and fostering a growth mindset.
 

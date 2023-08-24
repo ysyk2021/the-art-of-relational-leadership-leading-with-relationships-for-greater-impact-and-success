@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Leadership
-=========================================================================================
 
 Relational leadership is a people-focused approach to leadership that emphasizes building strong relationships and connections with team members. In this chapter, we'll explore how to assess your personal approach to leadership and identify areas where you can improve your relational leadership skills.
 
@@ -41,5 +39,4 @@ Conclusion
 ----------
 
 Assessing your personal approach to leadership is an important step in becoming a more effective relational leader. By reflecting on your strengths and weaknesses, seeking feedback from others, and identifying areas for improvement, you can adopt a more people-focused approach to leadership that fosters trust, respect, and collaboration among your team members.
-
 

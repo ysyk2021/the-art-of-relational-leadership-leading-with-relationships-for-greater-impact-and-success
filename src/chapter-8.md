@@ -1,5 +1,3 @@
-Chapter 8: Creating a Culture of Relational Leadership
-======================================================
 
 Creating a culture of relational leadership is essential for achieving success in the workplace. In this chapter, we'll explore strategies for encouraging proactive relational leadership across the organization, providing training and professional development opportunities, fostering knowledge sharing and mentorship, and celebrating relational leadership-based achievements.
 

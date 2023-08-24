@@ -1,5 +1,3 @@
-Chapter 10: Measuring Results and Learning from Experience
-==========================================================
 
 Effective leadership involves not only setting goals and completing tasks but also continuously learning and adapting to changes in the workplace. In this chapter, we'll explore how relational leaders can measure results, reflect on their experiences, and continuously learn and improve.
 

@@ -1,5 +1,3 @@
-Fostering a Growth Mindset
-===================================================================================
 
 Managing resistance to relational leadership is essential for building strong relationships with team members and achieving greater impact and success in the workplace. In this chapter, we'll explore strategies for fostering a growth mindset to overcome resistance to relational leadership.
 

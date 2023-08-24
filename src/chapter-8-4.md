@@ -1,5 +1,3 @@
-Celebrating Relational Leadership-Based Achievements
-============================================================================================================
 
 Creating a culture of relational leadership requires celebrating achievements that are based on effective relational leadership. In this chapter, we'll explore strategies for celebrating these achievements, including recognizing individual and team contributions, promoting a positive workplace culture, and fostering a sense of community.
 

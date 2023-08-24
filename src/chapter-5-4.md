@@ -1,5 +1,3 @@
-Fostering Trust and Respect
-====================================================================================
 
 As a relational leader, building trust and respect with your team is crucial to achieving success. In this chapter, we'll explore how to maximize your relational leadership skills by fostering trust and respect.
 
@@ -35,5 +33,4 @@ To balance trust and respect, consider the following:
 * Recognize and celebrate achievements: Show appreciation for your team members' contributions and successes, while also acknowledging areas where improvement could be made.
 
 By fostering trust and respect with your team, you can maximize your relational leadership skills and achieve greater success.
-
 

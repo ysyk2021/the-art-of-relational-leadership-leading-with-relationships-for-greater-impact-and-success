@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Relational Leadership
-==========================================================
 
 Technology can play a powerful role in enhancing relational leadership. In this chapter, we will explore how to identify and use technology to enhance your relational leadership experience, while also fostering accessibility and inclusivity and avoiding information overload.
 

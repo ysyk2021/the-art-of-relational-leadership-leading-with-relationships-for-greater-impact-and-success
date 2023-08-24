@@ -1,5 +1,3 @@
-Common Misconceptions About Leadership
-===============================================================
 
 Leadership is a complex and multifaceted concept, and there are many misconceptions about what it means to be an effective leader. In this chapter, we'll explore some common misconceptions about leadership and how they can be detrimental to achieving success.
 

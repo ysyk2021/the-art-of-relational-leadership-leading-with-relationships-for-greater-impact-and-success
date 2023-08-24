@@ -1,5 +1,3 @@
-Chapter 3: Developing a Relational Leadership Mindset
-=====================================================
 
 Developing a relational leadership mindset is essential for achieving success in the workplace. In this chapter, we'll explore techniques for cultivating a relational leadership mindset, utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through relational leadership.
 
@@ -54,5 +52,4 @@ Conclusion
 ----------
 
 Developing a relational leadership mindset requires techniques for cultivating this mindset, utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through relational leadership. By prioritizing these aspects of leadership, leaders can build trust, promote creativity and innovation, enhance problem-solving and decision-making capabilities, increase engagement and motivation, and achieve greater impact and success in the workplace.
-
 

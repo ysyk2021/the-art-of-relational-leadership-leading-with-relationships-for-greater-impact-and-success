@@ -1,5 +1,3 @@
-Understanding the Principles of Effective Relational Leadership
-========================================================================================================================
 
 Developing effective relational leadership skills is essential for leading with empathy and authenticity. In this chapter, we'll explore the principles of effective relational leadership.
 

@@ -1,5 +1,3 @@
-Communicating Effectively
-==================================================================================
 
 Effective communication is a crucial component of relational leadership. In this chapter, we'll explore how you can maximize your relational leadership skills by communicating effectively with your team.
 

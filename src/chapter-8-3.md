@@ -1,5 +1,3 @@
-Fostering Knowledge Sharing and Mentorship
-==================================================================================================
 
 Creating a culture of relational leadership is essential for achieving success in the workplace. In this chapter, we'll explore strategies for fostering knowledge sharing and mentorship, including creating opportunities for collaboration, promoting continuous learning, and offering mentorship programs.
 

@@ -1,5 +1,3 @@
-Chapter 2: Defining Relational Leadership
-=========================================
 
 Relational leadership is a leadership style that prioritizes building relationships and promoting open communication among team members. In this chapter, we'll provide an overview of relational leadership, explore the science behind effective leadership, and discuss how to assess your personal approach to leadership.
 

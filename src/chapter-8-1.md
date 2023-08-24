@@ -1,5 +1,3 @@
-Encouraging Proactive Relational Leadership Across the Organization
-===========================================================================================================================
 
 Relational leadership is not just about individual leaders; it's about creating a culture of leadership that values and prioritizes relationships and connections with team members. In this chapter, we'll explore how to create a culture of relational leadership and encourage proactive relational leadership across the organization.
 

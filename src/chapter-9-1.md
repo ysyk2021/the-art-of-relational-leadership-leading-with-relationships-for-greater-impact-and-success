@@ -1,5 +1,3 @@
-Identifying Relational Leadership Technologies and Resources
-========================================================================================================================
 
 Technology can be a valuable tool for enhancing relational leadership. In this chapter, we'll explore strategies for identifying technologies and resources that promote relational leadership, including communication tools, project management software, and learning management systems.
 

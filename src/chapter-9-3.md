@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-===================================================================================================
 
 Technology has revolutionized the way we work, communicate, and collaborate. In this chapter, we'll explore how leaders can leverage technology to foster accessibility and inclusivity in the workplace.
 
