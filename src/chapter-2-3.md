@@ -1,5 +1,4 @@
-Chapter 3: Assessing Your Personal Approach to Leadership
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the importance of assessing your personal approach to leadership. We will delve into self-reflection, examining your strengths, weaknesses, values, and beliefs as a leader. This assessment will enable you to gain insights into your leadership style and make intentional choices to enhance your relational leadership skills.
 

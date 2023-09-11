@@ -1,5 +1,4 @@
-Chapter 6: Continuous Learning and Improvement
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the importance of continuous learning and improvement as a relational leader. We will delve into strategies for fostering a learning culture, developing personal and professional growth plans, and leveraging feedback for improvement. By embracing continuous learning and improvement, leaders can enhance their effectiveness, drive innovation, and achieve greater success.
 

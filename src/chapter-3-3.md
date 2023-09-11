@@ -1,5 +1,4 @@
-Chapter 5: Setting Realistic Goals and Objectives
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the topic of setting realistic goals and objectives. We will delve into the importance of goal-setting, strategies for setting achievable targets, and how leaders can align their goals with the needs and aspirations of their team members. By setting realistic goals and objectives, leaders can inspire motivation, foster a culture of success, and drive meaningful results.
 

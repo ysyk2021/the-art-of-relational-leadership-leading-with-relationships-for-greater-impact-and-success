@@ -1,5 +1,4 @@
-Chapter 5: Analyzing the Impact of Relational Leadership on Individuals and Organizations
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the profound impact that relational leadership has on both individuals and organizations. By analyzing the effects of relational leadership, we can understand how it drives personal growth, enhances team dynamics, and ultimately contributes to the success and sustainability of organizations.
 

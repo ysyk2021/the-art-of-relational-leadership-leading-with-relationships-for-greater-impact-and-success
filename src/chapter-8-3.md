@@ -1,5 +1,4 @@
-Chapter 6: Fostering Knowledge Sharing and Mentorship
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the importance of fostering knowledge sharing and mentorship in relational leadership. We will delve into strategies for creating a culture that encourages the exchange of knowledge, experiences, and insights, as well as the benefits of mentorship in developing future leaders. By fostering knowledge sharing and mentorship, leaders can nurture continuous learning, accelerate growth, and drive long-term success.
 

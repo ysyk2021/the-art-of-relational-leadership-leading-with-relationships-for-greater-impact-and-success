@@ -1,5 +1,4 @@
-Chapter 8: Identifying Opportunities for Leading with Relationships
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the topic of identifying opportunities for leading with relationships. We will delve into the importance of recognizing moments where relational leadership can make a significant impact, strategies for leveraging relationships to drive success, and how leaders can proactively seek out and maximize these opportunities. By identifying and capitalizing on opportunities for leading with relationships, leaders can enhance collaboration, influence outcomes, and achieve greater overall success.
 

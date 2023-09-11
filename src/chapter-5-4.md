@@ -1,5 +1,4 @@
-Chapter 3: Fostering Trust and Respect
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the topic of fostering trust and respect. We will delve into the importance of trust and respect in leadership, strategies for building and nurturing these essential elements, and how leaders can create an environment where trust and respect flourish. By fostering trust and respect, leaders can enhance collaboration, engagement, and overall success.
 

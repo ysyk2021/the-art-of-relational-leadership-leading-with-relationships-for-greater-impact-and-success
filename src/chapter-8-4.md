@@ -1,5 +1,4 @@
-Chapter 12: Celebrating Relational Leadership-Based Achievements
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the importance of celebrating achievements that result from relational leadership. We will delve into the significance of recognizing and acknowledging the accomplishments driven by strong relationships, effective communication, collaboration, and trust. By celebrating relational leadership-based achievements, leaders can inspire and motivate their teams, reinforce positive behaviors, and foster a culture of continuous growth and success.
 

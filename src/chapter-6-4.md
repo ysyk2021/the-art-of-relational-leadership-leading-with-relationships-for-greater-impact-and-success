@@ -1,5 +1,4 @@
-Chapter 7: Fostering Continuous Learning and Improvement
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the importance of fostering a culture of continuous learning and improvement within organizations. We will discuss how relational leaders can create an environment that encourages personal and professional growth, embraces change, and drives innovation.
 

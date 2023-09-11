@@ -1,5 +1,4 @@
-Chapter 12: Finding Ways to Build Effective Relationships
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore strategies for building effective relationships. We will delve into key principles, approaches, and techniques that leaders can employ to establish strong connections, foster trust, and cultivate successful partnerships. Building effective relationships is essential for relational leadership, as it forms the foundation for collaboration, influence, and achieving shared goals.
 

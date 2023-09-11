@@ -1,5 +1,4 @@
-Chapter 3: The Benefits of Focusing on Relational Leadership
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the multitude of benefits that come from prioritizing relational leadership. By emphasizing relationships as a core component of leadership, individuals can unlock significant advantages that positively impact both themselves and their organizations.
 

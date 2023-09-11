@@ -1,5 +1,4 @@
-Chapter 5: Developing Strategies for Leading with Relationships
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore strategies for cultivating and leveraging relationships to enhance leadership effectiveness. By developing strong connections and fostering meaningful relationships, leaders can inspire, influence, and drive positive outcomes within their teams and organizations.
 

@@ -1,5 +1,4 @@
-Chapter 10: Fostering Accessibility and Inclusivity
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the importance of fostering accessibility and inclusivity as a relational leader. We will delve into strategies for creating an inclusive environment, removing barriers, and ensuring equitable access to opportunities and resources. By fostering accessibility and inclusivity, leaders can cultivate a culture of belonging, harness diverse perspectives, and drive greater impact and success.
 

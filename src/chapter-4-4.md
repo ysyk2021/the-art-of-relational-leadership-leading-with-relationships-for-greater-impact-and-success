@@ -1,5 +1,4 @@
-Chapter 7: Addressing Limiting Beliefs
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the concept of addressing limiting beliefs. We will examine how these beliefs can hinder leadership effectiveness, limit personal growth, and impact relationships. By recognizing and addressing these beliefs, leaders can unlock their full potential, cultivate stronger relationships, and achieve greater success.
 

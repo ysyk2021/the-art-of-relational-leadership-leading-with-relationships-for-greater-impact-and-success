@@ -1,5 +1,4 @@
-Chapter 2: Understanding the Principles of Effective Relational Leadership
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will delve into the principles that underpin effective relational leadership. These principles serve as a guide for leaders to develop and nurture strong relationships, inspire their teams, and drive positive outcomes within their organizations.
 

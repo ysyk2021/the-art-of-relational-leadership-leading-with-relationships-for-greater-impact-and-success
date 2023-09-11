@@ -1,5 +1,4 @@
-Chapter 1: Overview of Relational Leadership
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this opening chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will provide an overview of the concept of relational leadership. We will explore its definition, key principles, and the significance of leading with relationships in today's complex and interconnected world.
 

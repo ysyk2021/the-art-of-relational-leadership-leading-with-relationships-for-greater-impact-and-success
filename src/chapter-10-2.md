@@ -1,5 +1,4 @@
-Chapter 8: Reflection and Self-Evaluation
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the importance of reflection and self-evaluation as a relational leader. We will delve into the benefits of reflection, techniques for effective self-evaluation, and how to leverage these practices to enhance leadership effectiveness. By engaging in reflection and self-evaluation, leaders can gain valuable insights, make informed decisions, and continually grow and improve as leaders.
 

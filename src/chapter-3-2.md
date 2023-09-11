@@ -1,5 +1,4 @@
-Chapter 7: Utilizing Positive Self-Talk and Visualization
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the topic of utilizing positive self-talk and visualization. We will delve into the power of our thoughts and mindset, strategies for cultivating positive self-talk, and how visualization can enhance leadership effectiveness. By harnessing the power of positive self-talk and visualization, leaders can boost confidence, overcome challenges, and achieve greater success.
 

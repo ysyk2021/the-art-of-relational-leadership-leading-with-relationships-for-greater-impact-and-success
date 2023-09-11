@@ -1,5 +1,4 @@
-Chapter 12: Tracking Progress and Measuring Results
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the importance of tracking progress and measuring results as a relational leader. We will delve into strategies for setting measurable goals, establishing key performance indicators (KPIs), and implementing systems to track progress effectively. By tracking progress and measuring results, leaders can drive accountability, make data-informed decisions, and achieve greater success.
 

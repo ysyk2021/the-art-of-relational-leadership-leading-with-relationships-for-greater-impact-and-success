@@ -1,5 +1,4 @@
-Chapter 8: Identifying Relational Leadership Technologies and Resources
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the various technologies and resources available to support relational leaders in their leadership journey. We will delve into the importance of leveraging technology, tools, and resources to enhance relationship building, communication, collaboration, and overall effectiveness as a leader. By identifying and utilizing the right relational leadership technologies and resources, leaders can strengthen their relationships, drive positive impact, and achieve greater success.
 

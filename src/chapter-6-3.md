@@ -1,5 +1,4 @@
-Chapter 7: Utilizing Feedback and Coaching
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the importance of utilizing feedback and coaching in relational leadership. Feedback and coaching are powerful tools that enable leaders to support the growth, development, and success of their team members. By leveraging feedback and coaching effectively, leaders can foster a culture of continuous learning, improvement, and empowerment.
 

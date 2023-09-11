@@ -1,5 +1,4 @@
-Chapter 10: Avoiding Information Overload
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore strategies for avoiding information overload as a relational leader. We will delve into the challenges posed by excessive information, techniques for managing and filtering information effectively, and how to maintain focus and productivity amidst the deluge of data. By implementing strategies to avoid information overload, leaders can make informed decisions, enhance their effectiveness, and achieve greater success.
 

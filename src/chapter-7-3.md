@@ -1,5 +1,4 @@
-Chapter 6: Addressing Fear and Uncertainty
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the topic of addressing fear and uncertainty. We will delve into the impact of fear and uncertainty on leadership effectiveness, strategies for managing these emotions, and how leaders can foster resilience and inspire confidence in their teams. By addressing fear and uncertainty, leaders can navigate challenges, make informed decisions, and cultivate a culture of growth and success.
 

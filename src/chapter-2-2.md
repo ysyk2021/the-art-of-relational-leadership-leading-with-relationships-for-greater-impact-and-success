@@ -1,5 +1,4 @@
-Chapter 5: Understanding the Science Behind Effective Leadership
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the science behind effective leadership. We will delve into key concepts and research findings from the fields of psychology, neuroscience, and organizational behavior that shed light on what makes a leader truly effective. Understanding the science behind effective leadership will provide a foundation for implementing relational leadership practices that drive positive outcomes.
 

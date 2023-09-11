@@ -1,5 +1,4 @@
-Chapter 9: Communicating Effectively
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the importance of effective communication in leadership. We will delve into key principles, strategies, and skills that leaders can employ to enhance their communication abilities and build strong relationships with their teams. Effective communication lays the foundation for understanding, trust, collaboration, and ultimately, achieving success.
 

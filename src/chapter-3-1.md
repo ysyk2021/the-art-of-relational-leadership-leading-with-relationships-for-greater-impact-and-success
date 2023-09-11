@@ -1,5 +1,4 @@
-Chapter 3: Techniques for Cultivating a Relational Leadership Mindset
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore techniques for cultivating a relational leadership mindset. We will delve into the key principles and skills necessary for building strong relationships, fostering trust, and promoting collaboration. By developing a relational leadership mindset, leaders can enhance their effectiveness in leading and influencing others.
 

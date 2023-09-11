@@ -1,5 +1,4 @@
-Chapter 5: Fostering a Growth Mindset
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Relational Leadership: Leading with Relationships for Greater Impact and Success," we will explore the importance of fostering a growth mindset as a leader. We will delve into the characteristics of a growth mindset, strategies for cultivating this mindset within oneself and others, and how it can lead to personal and organizational growth. By fostering a growth mindset, leaders can inspire continuous learning, innovation, and resilience.
 
